@@ -23,7 +23,13 @@
 |                  著名ACG-bt下载站                   |           [nyaa.si](https://nyaa.si/)（科学）          |
 |                   国语资源图种磁                    |        [Sukebei](https://sukebei.nyaa.si/)（科学）        |
 |                                                     |                                                              |
-
+|                                                     |                                                              |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |          [海量诱惑短视频](https://v.hallo365.top/)           |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |            [脱衣直播区](https://v.hallo365.top/)             |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |             [认证女神](https://v.hallo365.top/)              |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |             [成人动漫](https://v.hallo365.top/)              |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |           [国产大厂制片](https://v.hallo365.top/)            |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |             [软嫩萝莉](https://v.hallo365.top/)              |
 
 
 **实时更新地址 汇总版 👇👇👇**
