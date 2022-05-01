@@ -1,13 +1,15 @@
 # 磁力导航大全_bt导航_磁力站大全，磁力爱好者必看收藏！尽头导航_磁力终点导航github
 
 >  - bt磁力导航在于精而不在于多，下方站点可覆盖全类型资源。
->  - 在再次失去它们之前，请提前收藏好下方汇总版，因为本人也在用，这个列表会实时更新。 
+>  - 在再次失去它们之前，请提前收藏好下方汇总版，这个列表会实时更新。 
+>  - 备用 https://jintou.gitbook.io
 
 
 
 |                        介绍                         |                           最新地址                           |
 | :-------------------------------------------------: | :----------------------------------------------------------: |
 |                 资源全、综合最强！                  |                 [BTSOW](https://btsow.com/)                  |
+|                 同上，几乎并列！                  |                 [磁力天堂1](https://Cltt.me)  [2](https://Cltt.vip)                  |
 |                        老牌                         |       [Torrent Kitty](https://torrentkittyurl.com/tk/)       |
 |                     国外资源多                      | [东京图书馆①](https://www.tokyotosho.info/)   [②](http://tokyotosho.se/)   [③](https://tokyo-tosho.net/) |
 |                   国语资源图种磁                    | [u3c3](https://u3c3.cc/) [bt-btt](https://www.ebay.com/usr/bt-btt) |
@@ -35,7 +37,7 @@
 
 > 汇总网址： [`发车论坛导航大全|动漫二次元ACG导航大全|磁力导航大全_bt导航_磁力站大全| 尽头导航_磁力终点导航github | 照亮狼家`](https://jintou.gitbook.io) https://jintou.gitbook.io
 
-> 汇总网址： [`备用网址`](https://github.com/jtdh/jtdh/) https://github.com/jtdh/jtdh
+
 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
